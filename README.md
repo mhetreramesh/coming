@@ -1,1 +1,1 @@
-# coming soon page
+# Coming soon page
